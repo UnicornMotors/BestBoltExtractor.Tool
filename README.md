@@ -6,7 +6,7 @@ https://youtu.be/Oqs-08ATRyU, https://youtu.be/-8N0y0jVAng, https://youtu.be/x_k
 
 - [Broken LS Exhaust Bolt Removal - Best Trick Ever!](https://youtu.be/Oqs-08ATRyU)
 
-## Deep Hole
+## Insulate with Copper Tubing!, Deep Hole
 - [Extract Broken bolts from deep hole NEW easy WAY](https://youtu.be/-8N0y0jVAng)
 
 # Specialized Tool
