@@ -3,7 +3,7 @@ https://youtu.be/Oqs-08ATRyU, https://youtu.be/-8N0y0jVAng, https://youtu.be/x_k
 
 # Welding Method
 **Heat and Thermal Expansion is Key! Add penetrating oil AFTER welding.**
-
+- [#shorts I Make So Much Money Removing Broken Bolts](https://youtu.be/oELwC35iWxg)
 - [Broken LS Exhaust Bolt Removal - Best Trick Ever!](https://youtu.be/Oqs-08ATRyU)
 
 ## Insulate with Copper Tubing!, Deep Hole
